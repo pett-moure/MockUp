@@ -16,6 +16,10 @@ Esboços do desenho do nosso site
 ![4](https://github.com/pett-moure/MockUp/assets/141975184/666f494d-65eb-4ae5-82d9-6b32472ce26b)
 ![5](https://github.com/pett-moure/MockUp/assets/141975184/ce334bf7-1aaa-431d-874f-97a31bca1b51)
 
+![6](https://github.com/pett-moure/MockUp/assets/141975184/67998f20-2b92-4dca-ac96-0204fee2e49b)
+![8](https://github.com/pett-moure/MockUp/assets/141975184/9e365e0b-fe24-4fc5-9917-c1091192919b)
+![7](https://github.com/pett-moure/MockUp/assets/141975184/5b0477d3-3a66-444c-a328-0acea102c797)
+
 
 
 
